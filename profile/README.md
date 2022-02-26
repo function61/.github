@@ -1,0 +1,1 @@
+🚨 [Putin is a war criminal](https://www.reuters.com/world/europe/icc-says-may-investigate-possible-war-crimes-after-russian-invasion-ukraine-2022-02-25/). [Russians are deliberately killing civilians in Ukraine.](https://www.dailymail.co.uk/news/article-10553849/Russian-tank-DELIBERATELY-crushes-car-driving-opposite-road-Ukraine-elderly-driver.html) 🚨
